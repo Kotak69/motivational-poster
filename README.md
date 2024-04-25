@@ -1,1 +1,1 @@
-# motivational-poster
+#https://kotak69.github.io/motivational-poster/
